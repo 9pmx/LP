@@ -1,2 +1,0 @@
-# LP
-Trabalhos de LP
